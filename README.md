@@ -1,0 +1,2 @@
+# funny
+poo roblox scripts
